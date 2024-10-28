@@ -1,1 +1,0 @@
-# check padlet for actual story: https://padlet.com/purcellc1/fall-app-n1n8zwudihgrvio7/slideshow/wish/3187702605  
